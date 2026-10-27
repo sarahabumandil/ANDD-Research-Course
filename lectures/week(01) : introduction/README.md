@@ -1,1 +1,1 @@
-
+https://alquds.zoom.us/rec/play/jt6i1e9Ygr-24BX6oh2n2s2I8wgpgqcTw86L-ufHpU5kddKxZFnbSXh4NFG4vKfSOqwdZBZ2UPkQFvod.r_okiOSdBoZO1ber?accessLevel=&hasValidToken=false&canPlayFromShare=true&from=share_recording_detail&continueMode=true&oldStyle=true&componentName=rec-play&originRequestUrl=https%3A%2F%2Falquds.zoom.us%2Frec%2Fshare%2F15P9gd5sQNVDXrXJs8jqN_OdoOO_EwRI0A8khFb2z09HRoBP6qQXwYzZOOg4kg.K9r_J_pX2MQUd7Jf
